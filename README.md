@@ -3,3 +3,5 @@
 hehotnheu
 oetnuhenot
 toehu
+-senu-ou
+-eosu
